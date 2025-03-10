@@ -1,5 +1,5 @@
 蓝色导航发布页地址一地址二<br>
-:heart: :point_right: 【最新地址1】 ：https://最新.dizhi04.top/秘密<br>
+:heart: :point_right: 【最新地址1】 ：https://最新.w18df2.cyou/秘密<br>
 ## **怎么才能快速找到蓝色导航发布页**<br>
 
 📧 找回地址邮箱:huifudizhi#gmail.com 把#换成@（以上地址无法访问请发送任意内容获取最新地址）<br>
